@@ -1,1 +1,0 @@
-# Orthopoxvirus-genus
